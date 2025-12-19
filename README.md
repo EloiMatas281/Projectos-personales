@@ -36,5 +36,5 @@ actualmente no tengo tecnlogias propias pero dentro de poco subire cualquier con
 ---
 
 ## 📫 Contacto
-* LinkedIn: [Tu Enlace]
-* Correo: [Tu Email]
+* LinkedIn: en proceso
+* Correo: eloiete281@gmail.com
